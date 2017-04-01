@@ -4,4 +4,4 @@ Gebet’a- “One of the earlist evidence of the game are fragments of a pottery
 
 I am planning to implement the simplest version of the game. 
 
-I have collected the relevant documents and I know how to play the game very early. I used to play since I was 12. 
+I have collected the relevant documents and I know how to play the game very well. I used to play since I was 12. 
